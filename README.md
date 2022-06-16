@@ -4,7 +4,7 @@ Perkenalkan nama saya **Muhammad Ishaq Matanggwan**.
 
 Saya seorang **Mahasiswa Teknik Komputer** di Universitas Diponeogoro.
 
-LinkedIn saya dapat diakses di [Linkedin](https://www.linkedin.com/in/muhammad-ishaq-matanggwan-478573203/)
+LinkedIn saya dapat diakses di [Linkedin](https://www.linkedin.com/in/ishaq71/)
 
 <p align="left">
 <a href="https://github.com/Shaqq771">
